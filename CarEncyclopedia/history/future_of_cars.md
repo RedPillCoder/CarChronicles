@@ -94,5 +94,3 @@ The evolution of cars offers numerous benefits:
 - Some concept cars feature biometric systems that adjust settings based on the driver’s mood.
 
 ---
-
-Join us as we explore the innovations shaping tomorrow's roads! 🚗✨
